@@ -15,13 +15,13 @@
 
 - 📝 I regularly write articles on [https://medium.com/@Prince_Shrivastava](https://medium.com/@Prince_Shrivastava)
 
-- 💬 Ask me about **Bootstrap**
+- 💬 Ask me about **Anything Related CODE & COSMOS**
 
 - 📫 How to reach me **https://www.instagram.com/__prince_shrivastava__/**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1ynq3sk6McbA7Gjz1F3mekPv9k4YEmZoC/view?usp=drive_link](https://drive.google.com/file/d/1ynq3sk6McbA7Gjz1F3mekPv9k4YEmZoC/view?usp=drive_link)
 
-- ⚡ Fun fact **I am too funny.**
+- ⚡ Fun fact **Just like the universe, my code is as limitless as the cosmos! 🌌✨**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
